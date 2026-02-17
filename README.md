@@ -20,3 +20,25 @@ co.sc — Free IT resources empowering the student community. We provide student
 co.sc | Free IT Resources Empowering the Student Community.<br>
 register@co.sc | https://co.sc<br>
 <br>
+<br>
+eMedia is an award-winning software and IT services company. We have been providing custom software development and IT services since 2005, Operating from Bangladesh, Germany, France, Luxembourg, Italy, Libya, Australia, The UAE & USA.
+<br>
+• eMedia Bangladesh Ltd.<br>
+151/7, Good Luck Center, 6th Floor, Green Road, Dhaka 1205, Bangladesh<br>
+<br>
+• eMedia LLC<br>
+8206 Louisiana Blvd NE Suite A, Albuquerque, NM, 87113, USA<br>
+<br>
+• eMedia Germany e.K.<br>
+Bahnhofstraße 41, 71332 Waiblingen, Germany<br>
+District Court: Stuttgart, BW, Germany, Register Number: HRA 733073<br>
+VAT ID: DE310732941, Owner: Muhammad Arif Hossain<br>
+<br>
+Technology Partners: Microsoft, Google, AWS<br>
+Industry Member: Chamber of Commerce (IHK) Stuttgart, Germany<br>
+General Member: Bangladesh Association of Software and Information Services (BASIS)<br>
+<br>
+We invite freelancers and all types of organizations to join us as joint venture partners for our free projects. In-sha-Allah, We believe that, Together we can drive innovation and create meaningful change for the future.<br>
+<br>
+eMedia Foundation — Serving Communities Since the 1990s<br>
+eMedia Foundation — Non-profit · Open source · Global welfare.<br>
